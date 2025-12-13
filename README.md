@@ -1,2 +1,1 @@
-# hello-world
-rutabega-johnson-lee-smith
+Golden Spiral's Wake
